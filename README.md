@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @zharkdvde (River or Zhark tho)
+- 👀 MV, DW & P!
+- 🌱 ENGLISH!!! IF U TALK TO ME, SPANISH PLS!!!!
+- 💞️ not really,,, go away /j
+- 📫 idk what this means
+- 😄 Pronouns: Any but she, so please respect!
+- ⚡ Fun fact: im inside ur walls..... /silly
